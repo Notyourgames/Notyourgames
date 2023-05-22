@@ -7,6 +7,6 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: DISCUSSION TAB
 - 😄 Pronouns: HIM
-- ⚡ Fun fact: i AM fat
+- ⚡ Fun fact: i AM sus
 -->
 Notyourgames is my first website i made with free tools and a lack of knowledge
